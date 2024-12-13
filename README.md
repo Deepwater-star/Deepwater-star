@@ -28,7 +28,8 @@ I'm very bad at friendships, so don't try to be my friend... $\color{#3fa6d8}{Go
 
 
 
-[Discord.](https://discord.com/users/1265088867992735868)
+[Discord.](https://discord.com/users/1265088867992735868) 
+•
 [Roblox](https://www.roblox.com/es/users/7350139048/profile)
 
 
