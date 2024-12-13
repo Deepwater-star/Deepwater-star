@@ -28,14 +28,11 @@ I'm very bad at friendships, so don't try to be my friend... $\color{#3fa6d8}{Go
 
 
 
+[Discord.](https://discord.com/users/1265088867992735868)
+[Roblox](https://www.roblox.com/es/users/7350139048/profile)
 
 
 
-$\color{#3fa6d8}{First~link4 ~info ~, }$
-
-$\color{#1780bc}{Second~link4 ~addme   ~, !}$
-
-$\color{#1780bc}{Third~link4 ~discord!   ~, !}$
 
 <p align="center" width="100%">
 <img width="100%" src="https://files.catbox.moe/5jnyfs.png">
